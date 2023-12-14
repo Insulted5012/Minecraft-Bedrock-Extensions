@@ -21,5 +21,5 @@ Follow my Socials for Sneak Peaks!
 https://www.twitter.com/InSALTed2
 - Instagram:
 https://www.instagram.com/chris.jxz
-- Discord
-Username: itsinsulted or Insulted#5012
+- Discord Username:
+itsinsulted or Insulted#5012
