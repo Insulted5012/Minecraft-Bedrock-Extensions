@@ -10,6 +10,7 @@ Come visit and enjoy the wonders of my custom addons and mods right here.
 
 --------------------------------------------------------------------------------
 How to download?
+-
 1. Click on the pack you want to download, or world export.
 2. Click on the file stating .mcpack or .mcworld.
 3. Look at the top right and click "raw" OR click the download raw file, it then should automatically download onto your downloads folder which then you would open and automatically install towards your Bedrock player.
