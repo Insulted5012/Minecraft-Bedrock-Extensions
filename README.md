@@ -17,9 +17,9 @@ How to download?
 --------------------------------------------------------------------------------
 Follow my Socials for Sneak Peaks!
 
-- Twitter
+- Twitter:
 https://www.twitter.com/InSALTed2
-- Instagram
+- Instagram:
 https://www.instagram.com/chris.jxz
 - Discord
 Username: itsinsulted or Insulted#5012
