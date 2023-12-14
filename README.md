@@ -14,3 +14,12 @@ How to download?
 2. Click on the file stating .mcpack or .mcworld.
 3. Look at the top right and click "raw" OR click the download raw file, it then should automatically download onto your downloads folder which then you would open and automatically install towards your Bedrock player.
 4. Enjoy!
+--------------------------------------------------------------------------------
+Follow my Socials for Sneak Peaks!
+
+- Twitter
+https://www.twitter.com/InSALTed2
+- Instagram
+https://www.instagram.com/chris.jxz
+- Discord
+Username: itsinsulted or Insulted#5012
